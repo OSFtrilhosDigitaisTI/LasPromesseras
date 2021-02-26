@@ -1,6 +1,15 @@
 # Documentário Las Promesseras 
 ## Direção e Roteiro Mara Silvestre 
 
+A Prefeitura Municipal de Porto Murtinho e a Água  Comunicação realizou neste dia 24/Fevereiro/2021, o Lançamento do Documentário "Las Promesseras", um evento que marca a comemoração e homenagem ao Dia  da Mulher Paraguaia. Este documentário foi realizado através do fomento da Lei Federal Aldir Blanc e contou com as parcerias da Secretaria Municipal de Cultura, Turismo e Desenvolvimento Local e da Fundação de Cultura de MS. Fundação de Cultura de Mato Grosso do Sul Obs.: Lembramos que foram cumpridas todas as medidas preventivas e de segurança contra a Pandemia da COVID19. Realização: PREFEITURA MUNICIPAL DE PORTO MURTINHO ÁGUA COMUNICAÇÃO 
+#CulturaDaFronteira #CulturaMurtinhense #FronteiraBRPY #ORioQueSeparaUne #PovosIrmãos #PortoMurtinho  
+
+## Link do Documentário Las Promesseras no #Youtube:  
+
+https://youtu.be/YU0Hx1hE2QY
+
+Serviço: 24 de fevereiro Lançamento #Doc ~> #LasPromesseras Direção #MaraSilvestre (#AguaComTV 2020). Uma #AtividadeCultural do #CorredorBioceanico #PantanalSUL do #FestivalToroCandil ~> #TapeNhande ~> #ToroCandil ~> Água Comunicação TV  #TrilhosDigitais #19dez19 #SecTurPM #FCMS #oRioQueSeparaNosUNE
+
 ![Las Promesseras 2021 02 24 Documentario YouTube](https://user-images.githubusercontent.com/79057539/109358886-e20fad00-785a-11eb-83f9-400cf533492f.jpg)
 
 ![A 1 Prefeitura Mun Porto Murtinho Las Promesseras](https://user-images.githubusercontent.com/79057539/109358904-eb007e80-785a-11eb-8afc-f4b56d7d522c.jpg)
