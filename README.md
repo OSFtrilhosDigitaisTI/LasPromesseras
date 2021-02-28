@@ -1,4 +1,4 @@
-# Documentário Las Promesseras 
+# Lançamento do Documentário Las Promesseras 
 ## Direção e Roteiro Mara Silvestre 
 
 A Prefeitura Municipal de Porto Murtinho e a Água  Comunicação realizou neste dia 24/Fevereiro/2021, o Lançamento do Documentário "Las Promesseras", um evento que marca a comemoração e homenagem ao Dia  da Mulher Paraguaia. Este documentário foi realizado através do fomento da Lei Federal Aldir Blanc e contou com as parcerias da Secretaria Municipal de Cultura, Turismo e Desenvolvimento Local e da Fundação de Cultura de MS. Fundação de Cultura de Mato Grosso do Sul Obs.: Lembramos que foram cumpridas todas as medidas preventivas e de segurança contra a Pandemia da COVID19. Realização: PREFEITURA MUNICIPAL DE PORTO MURTINHO ÁGUA COMUNICAÇÃO 
@@ -78,24 +78,39 @@ Serviço: 24 de fevereiro Lançamento #Doc ~> #LasPromesseras Direção #MaraSil
 
 ![Las Promesseras Lancamento 24 fev 2021 24](https://user-images.githubusercontent.com/79057539/109422996-39756080-79b4-11eb-843b-d41eb64e6455.jpg)
 
-## Diretora e Roteirista: [Mara Silvestre]()
+## Diretora e Roteirista: [Mara Silvestre](https://www.facebook.com/MaraSilvestreAguaComunicacao)
 
-## Água Comunicação [#AguaComTV]()
+## Água Comunicação [#AguaComTV](https://www.facebook.com/AguaComTV/)
 
-## Fotografia do Dia 24 fev 2021: [Luis Irala]()
+## Fotografia do Dia 24 fev 2021: [Luis Irala](https://www.facebook.com/luiz.irala.7)
 
-## Marketing Digital: [Trilhos Digitais]()
+## Marketing Digital: [Trilhos Digitais]
 
-## Divulgação: [Tape Nhande]() 
+## Divulgação: [Tape Nhande](https://www.facebook.com/tapenandenee) 
 
-## Page Oficial: [Las Promesseras]()
+## Page Oficial: [Las Promesseras](https://www.facebook.com/LasPromesseras/)
 
-## Perfil de Apoio: [Las Promesseras Mara Silvestre]()
+## Perfil de Apoio: [Las Promesseras Mara Silvestre](https://www.facebook.com/laspromesseras.mara.silvestre/)
 
 ## Site Oficial: https://www.torocandil.com/ 
 
-## Page Prefeitura Municipal de Porto Murtinho [PMPM}()
+## Page Prefeitura Municipal de Porto Murtinho [PMPM}(https://www.facebook.com/Prefeituraporto)
 
-## Órgão Executor: [SecturPM]()
+## Órgão Executor: [SecturPM](https://www.facebook.com/profile.php?id=100018713133910)
 
-## Fundação de Cultura de Mato Grosso do Sul [#FCMS]()
+## Fundação de Cultura de Mato Grosso do Sul [#FCMS](https://www.facebook.com/fundacaodeculturams) 
+
+
+## #Lançamento #24feb2021 #MuseoPadreJoséMuller  #IslaMargarita #CarmeloPeralta  #AltoParaguay 
+
+Las Promesseras en su Dia, afirma que #LaMujerParaguaya es decidida, valiente, trabajadora, y preparada. El #24deFebrero de 1867, un grupo de mujeres decidieron ofrendar sus joyas a la causa nacional de la guerra contra la triple alianza. Ante dicho gesto por decreto Ley del 6 de diciembre de 1974, se estableció esa fecha como “#DíaDeLaMujerParaguaya”.  
+
+#oRioQueSeparaNosUNE #CarmeloPeraltaPY #LasPromesseras #AguaComTV #19dez19  #TrilhosDigitais #MaraSilvestre #MujerParaguaya #TapeNhande #ToroCandil #MirnaOrregoSegovia
+
+![Las Promesseras 2021 02 24 Isla Margarida PY 01](https://user-images.githubusercontent.com/79057539/109423569-51e67a80-79b6-11eb-8fe7-c3fe8966e668.jpg) 
+
+![Las Promesseras 2021 02 24 Isla Margarida PY 02](https://user-images.githubusercontent.com/79057539/109423583-6296f080-79b6-11eb-9ffe-f309929db169.jpg) 
+
+![Las Promesseras 2021 02 24 Isla Margarida PY 03](https://user-images.githubusercontent.com/79057539/109423594-6b87c200-79b6-11eb-8b10-c6966f4f995a.jpg)
+
+![Las Promesseras 2021 02 24 Isla Margarida PY 04](https://user-images.githubusercontent.com/79057539/109423696-f36dcc00-79b6-11eb-848c-e74c86932159.jpg)
