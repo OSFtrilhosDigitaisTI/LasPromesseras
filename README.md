@@ -84,7 +84,7 @@ Serviço: 24 de fevereiro Lançamento #Doc ~> #LasPromesseras Direção #MaraSil
 
 ## Fotografia do Dia 24 fev 2021: [Luis Irala](https://www.facebook.com/luiz.irala.7)
 
-## Marketing Digital: [Trilhos Digitais]
+## Marketing Digital: [Trilhos Digitais]()
 
 ## Divulgação: [Tape Nhande](https://www.facebook.com/tapenandenee) 
 
@@ -113,4 +113,6 @@ Las Promesseras en su Dia, afirma que #LaMujerParaguaya es decidida, valiente, t
 
 ![Las Promesseras 2021 02 24 Isla Margarida PY 03](https://user-images.githubusercontent.com/79057539/109423594-6b87c200-79b6-11eb-8b10-c6966f4f995a.jpg)
 
-![Las Promesseras 2021 02 24 Isla Margarida PY 04](https://user-images.githubusercontent.com/79057539/109423696-f36dcc00-79b6-11eb-848c-e74c86932159.jpg)
+![Las Promesseras 2021 02 24 Isla Margarida PY 04](https://user-images.githubusercontent.com/79057539/109423696-f36dcc00-79b6-11eb-848c-e74c86932159.jpg) 
+
+## ORioQueSeparaNosUNE 
